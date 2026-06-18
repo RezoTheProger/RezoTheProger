@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **rezorima931@gmail.com**
 
-- ⚡ Fun fact **I lost hope in life and i am just trying to find a meaning on it**
+- ⚡ Fun fact **Sis Dris**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
